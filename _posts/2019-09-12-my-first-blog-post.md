@@ -1,0 +1,1 @@
+Helping new fans understand
